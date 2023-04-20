@@ -10,4 +10,7 @@ You can click the Preview link to take a look at your changes. - 👀 I’m inte
 - 🌱 I’m currently learning everything
 --->
 ![rubberduck](https://user-images.githubusercontent.com/115184165/233302361-ce1fd157-c6a1-4c1d-bc96-0158a14aed33.png)
-![rubberducking](https://user-images.githubusercontent.com/115184165/233302463-65805903-b684-4ebb-b674-e46e5863188e.png)
+
+
+![376326](https://user-images.githubusercontent.com/115184165/233302790-33246680-575f-4800-86b5-991f4648a77f.jpg)
+
